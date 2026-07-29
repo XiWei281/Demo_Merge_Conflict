@@ -1,5 +1,0 @@
-Reset04
-
-sadas
-
-sdasdasdadasdasdadasddfsadfadgafádfsadfád
